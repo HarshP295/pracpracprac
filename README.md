@@ -1,3 +1,2 @@
 # pracpracprac
-HAHAHHAHAHAHAAHAHAHA
-kuch to krde
+sab hata diya
